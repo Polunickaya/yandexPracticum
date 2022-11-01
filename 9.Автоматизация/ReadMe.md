@@ -1,1 +1,0 @@
-## Ссылка на дашборд : https://public.tableau.com/app/profile/svetlana1638/viz/__16598588665140/_#1
